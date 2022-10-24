@@ -18,6 +18,8 @@
 - 1/2 teaspoon freshly ground black pepper
 - 4 tablespoons olive oil, divided
 
+And make it with love (:  
+
 ### Sauce:
 - 1 1/4 cups vegetable stock
 - 1 1/4 cups beef stock
